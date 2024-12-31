@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Joey
+- 👀 I’m interested in - GAMING
+- 🌱 I’m currently learning - NOTHING
+- 💞️ I’m looking to collaborate on - NOTHING
+- 📫 How to reach me - YOU CANT
+- 😄 Pronouns: NORMAL
+- ⚡ Fun fact: IM NORMAL
